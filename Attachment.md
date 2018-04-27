@@ -1,6 +1,10 @@
 # 改变儿童教养方式与儿童临床心理学的研究（上）：Attachment（依恋理论）
-A strong disposition to seek proximity to and contact with a specific attachment figure and to do so in certain situations, notably when frightened, tired or ill.
-在焦虑、惊吓、和虚弱的时候对一个人的强烈需求。在这个人身边可以感受到安全感
+
+
+> A strong disposition to seek proximity to and contact with a specific attachment figure and to do so in certain situations, notably when frightened, tired or ill.
+
+
+在焦虑、惊吓、和虚弱的时候对一个人的强烈需求。在这个人身边可以感受到安全感。
 
 
 ## 哈洛的恒河猴实验
