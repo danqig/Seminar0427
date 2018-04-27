@@ -15,7 +15,7 @@ A strong disposition to seek proximity to and contact with a specific attachment
 + [视频](https://www.youtube.com/watch?v=OrNBEhzjg8I)：
   - 16s：第一个实验：让出生不久的小猴在这两个代替妈妈中做出选择
   - 2:50s：第二个实验：让小猴受到惊吓，看它们会向哪个妈妈寻求庇护
-  - 4:00s：第三个实验：陌生情境下，有不同妈妈在场是否会影响小猴子探索环境的行为（视频只显示了部分）
+  - 4:00s：第三个实验：陌生情境下，有不同妈妈在场是否会影响小猴子探索环境的行为
 
 
 **Harlow 的实验说明，单纯的喂食并不能让孩子产生对母亲的依赖，而身体接触对于建立健康的母婴连接十分重要。**
